@@ -1,1 +1,1 @@
-
+HEYY PEOPLES I JUS Ordered some utilities to start working on it its sharp 12am 3/11/25 I ordered Wood primmer and some electronic stuff like led neon strips. I will be ordering some black matte paint also i will be designing the usb hub and central hub pcb alongside.
